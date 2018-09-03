@@ -1,3 +1,5 @@
+Reading Response for Week 01:
+
 I believe the game 'The Founder' by Francis Tseng is about the realism of starting/running a business as well as using various 
 components to ensure the business remains successful. As there are many concepts in the game that tie to the real life processes of
 creating a business. These concepts are rather easy for gamers to understand and they make the experience engaging for all users. 
