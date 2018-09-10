@@ -1,3 +1,5 @@
+<b> Week 02: Reading Response </b>
+
 Art has evolved dramatically throughout the years, as this including using Litographcs, tracing, and other methods
 to create techniques within the art realm. As stated, "Mechanical reproduction of a work of art, however, represents
 something new..." New, meaning that artists can create anything, especially outside of the traditional elements
